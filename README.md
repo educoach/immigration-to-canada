@@ -1,0 +1,2 @@
+# immigration-to-canada
+EduCoach Advisors is a Pvt Ltd company based at New Delhi, India. Our services offering includes the following :-   Prepare eligible candidates for the Inter-Provincial Red Seal Challenger Exam conducted in BC, Canada. This service we provide in collaboration with ATTI (an ITA recognized private training provider).  Immigration Services to Canada. In collaboration with Apace Immigration Services.  Settlement services. Includes job placement and stay in Canada.
